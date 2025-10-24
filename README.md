@@ -1,1 +1,1 @@
-# -minnnu-esimene-projekt
+# -minnnu-esime
